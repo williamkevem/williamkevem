@@ -10,4 +10,4 @@
 
 00001129710737sp@al.educacao.sp.gov.br
 
-![]((link.https://media1.tenor.com/m/rq-n48NBHEkAAAAd/berserk-guts.gif)
+![](https://media1.tenor.com/m/rq-n48NBHEkAAAAd/berserk-guts.gif)
